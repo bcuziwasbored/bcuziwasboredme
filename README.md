@@ -1,0 +1,2 @@
+# bcuziwasboredme
+GitHub Pages
